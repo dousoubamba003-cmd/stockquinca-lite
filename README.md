@@ -1,0 +1,1 @@
+# stockquinca-lite
